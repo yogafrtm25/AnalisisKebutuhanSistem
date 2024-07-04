@@ -2,7 +2,7 @@
 
 Nama Kelompok :
 
-Bayu Maulana Ayassy   - 312210042
+Bayu Maulana Ayassy   - 312210161
 
 Cahyo Hidayatullah   - 312210079
 
